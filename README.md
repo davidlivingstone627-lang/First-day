@@ -5,3 +5,4 @@ Perfectly executed
 Sat in THE BAG
 We restart familiarization of git and github
 Return to forms and do all the 4 lessons
+Bummer
