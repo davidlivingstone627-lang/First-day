@@ -6,3 +6,5 @@ Sat in THE BAG
 We restart familiarization of git and github
 Return to forms and do all the 4 lessons
 Bummer
+
+Caught up and used a boost pad. Now goal 4am club tomorrow morning
