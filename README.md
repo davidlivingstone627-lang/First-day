@@ -9,3 +9,4 @@ Bummer
 
 Caught up and used a boost pad. Now goal 4am club tomorrow morning
 Today is a minor addition to the long list of commings
+Accessibility's beginnings
