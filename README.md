@@ -14,3 +14,4 @@ Accessibility's beginnings
 This is getting worrying. I have thirteen days at least to do 4am. today is Tuesday. Wednesday is no exception
 from screen readers and not yet 4am
 to begin thursday
+Friday is the remaining day, writing this at 11:28pm
