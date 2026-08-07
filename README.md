@@ -15,3 +15,5 @@ This is getting worrying. I have thirteen days at least to do 4am. today is Tues
 from screen readers and not yet 4am
 to begin thursday
 Friday is the remaining day, writing this at 11:28pm
+Did 5:30 with the workout after the walk
+Next is one meal a day and that is to be in the evening before 7pm
