@@ -17,3 +17,4 @@ to begin thursday
 Friday is the remaining day, writing this at 11:28pm
 Did 5:30 with the workout after the walk
 Next is one meal a day and that is to be in the evening before 7pm
+Going to start 4 am everyday, either ec
