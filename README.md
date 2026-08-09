@@ -20,3 +20,4 @@ Next is one meal a day and that is to be in the evening before 7pm
 Going to start 4 am everyday, either reading or exercise 
 Turns out 10000hrs is what it takes to be an expert in something. Meaning at least 18hrs a day.
   That is 556 days of consistency. So that is something that is totally possible. Yep I think we know how this is going to pan out 
+This is sunday log, Clean cut start deficit with one brown bowl of food in the evening starting tomorrow. 4 am starting tomorrow. 18hr daily race starting tomorrow. but to be truthfull it will be 3:30 am
