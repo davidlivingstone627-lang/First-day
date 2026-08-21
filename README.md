@@ -30,5 +30,5 @@ Today woke up at 4:45 after having expected Solo to get us up at 11pm. So I work
 Woke up at 8am recovered the day until the evening schedule that I had to compress together after getting up at 11:10pm to finish my duties.
 Today awoke at 10:30am, no power nothing completely. Did abit in the morning then had one more in the late afternoon. This week is a no starch week but from yesterday 11pm to today 11am I consumed starch without control. I did the 180 reps abs today, none yesterday, no squats, have had my dinner at 7pm which is perfectly sandwiched in the eating time window. To have water an hour after, 8:15ish then grind into the evening then initialize a project to upload and start grinding even Harder. All free time is to be used GRINDING. Well lets have at it.
 Today woke up at 9:48 am. Real not. The harder I work, the luckier I get. Gary Player
-
+Today awoke at 7:45 am
 Awoke at 10:00am after snoozing alarm at 5:54am and not getting up at 8am. Anyway, did the workout and abs, then activity lazily in the early morning and paid for it then abit more in the afternoon where I made one but since focus was spread thin had to just leave it at that. That aside, I tried to push some code yesterday to no avail. Might be because I made the repo on the cloud private, but this shit will have to work whether it want to or not, a 100 walls will not stop me.
