@@ -39,3 +39,5 @@ Woke up at 8:47am today, took the girls to town and came back after some shoppin
 Today awoke at 7:30 something after sleeping past 3:30, more like struggling but we settle on the positive going forward. Workout came at 9:30 to 11. made lemon water then went to the shop. Drank water since it was afternoon by the time I settled. Had Lemon water too then did 105+ pushups knee step decline. To try wider stance to feel what was going on Tuesday night. Then caught up and just finished supergirl while enjoying frozen kefir. Now to go for car at carwash and come to do freecodecamp as I continue on the upgrade and follow through of the react project
 Peter Cullen is no longer with us
 That was thursday, this is being added on the last few minutes of the following Tuesday. Marvelous isn't it. To find what you love and let it kill you.
+Wednesday flew past
+Thursday successfully made first push from local after removing credentials of old account. Yeeey Find what you love and let it kill you.
