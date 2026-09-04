@@ -41,3 +41,4 @@ Peter Cullen is no longer with us
 That was thursday, this is being added on the last few minutes of the following Tuesday. Marvelous isn't it. To find what you love and let it kill you.
 Wednesday flew past
 Thursday successfully made first push from local after removing credentials of old account. Yeeey Find what you love and let it kill you.
+Friday, made second successful push on an incomplete website. Yeey Find what you love and let it kill you. This is fun
